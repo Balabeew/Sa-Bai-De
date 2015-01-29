@@ -1,6 +1,7 @@
 #  Welcome to Bew's page 
 ## Sa-Bai-De 
 **Nice to meet you**
+___
 ![](https://scontent-b-kul.xx.fbcdn.net/hphotos-ash2/v/t1.0-9/1473001_1406006746304105_1548160788_n.jpg?oh=1e583780d97a037bd2cc07763f1b0066&oe=556AA1B8)
 
 >**Myname is Jarunate Sangieo ,Nick name Bew**
