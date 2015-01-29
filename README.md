@@ -1,8 +1,13 @@
 # Sa-Bai-De
- Nice to meet you
+**Nice to meet you**
 ## Welcome to Bew's page 
-!(https://scontent-b-kul.xx.fbcdn.net/hphotos-ash2/v/t1.0-9/1473001_1406006746304105_1548160788_n.jpg?oh=1e583780d97a037bd2cc07763f1b0066&oe=556AA1B8)
+***
+![](https://scontent-b-kul.xx.fbcdn.net/hphotos-ash2/v/t1.0-9/1473001_1406006746304105_1548160788_n.jpg?oh=1e583780d97a037bd2cc07763f1b0066&oe=556AA1B8)
+
 ** Myname is Jarunate Sangieo , Nick name Bew**
 ** I'm studying at Prince of Songkla University.**
-![](D:\beww\PSU\Memory/DSC03460/image.jpg)
+
+![](https://scontent-b-kul.xx.fbcdn.net/hphotos-xap1/v/t1.0-9/10410940_1502341230003989_7565592830169430829_n.jpg?oh=f00d3f72d7b7c049ad86713da4759457&oe=5554AD46)
+
+___
 [Facebook](https://www.facebook.com/Bewxz.Jarunate)
